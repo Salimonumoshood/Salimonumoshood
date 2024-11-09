@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on any web development projects
 - 💞️  I know about graphic/product/brand design
-- 📫 How to reach me ...https://wa.me/message/PWUE6Q2RCQNIC1
+- 📫 How to reach me ...https://wa.me/message/PWUE6Q2RCQNIC1 or salimonumoshood@gmail.com
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...
 
